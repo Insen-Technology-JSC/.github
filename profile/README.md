@@ -1,6 +1,6 @@
 ## Insen Technology
 
-Insen is an Health Tech company. We aim to bring a safe and secure living environment for our customers.
+Insen is an Health Tech company. We aim to bring a safe and comfortable living environment for our customers.
 
 ## Get in touch!
 
